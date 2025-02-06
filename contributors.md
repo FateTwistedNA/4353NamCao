@@ -1,2 +1,1 @@
-Nam Cao
-John Ercan
+Can Ercan, Erin Bartels, Nam Cao, Zain Waseem
